@@ -1,0 +1,1 @@
+# AI32D1-Fundamentals-of-Artificial-Intelligence---Aerospace-Engineering---Jan-2025-Even-Semester
